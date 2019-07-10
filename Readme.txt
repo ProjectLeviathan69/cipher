@@ -1,0 +1,1 @@
+Thanks for your interest in my bots source feel free to do whatever with it.
